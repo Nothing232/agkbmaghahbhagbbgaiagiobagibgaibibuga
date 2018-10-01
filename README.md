@@ -1,0 +1,2 @@
+# agkbmaghahbhagbbgaiagiobagibgaibibuga
+cracked bot
